@@ -1,1 +1,1 @@
-# Sogoyan_Is-25 Pz2
+# Sogoyan_Is-25
